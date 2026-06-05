@@ -1,0 +1,2 @@
+# praktikumlarav-gea
+Basing La
